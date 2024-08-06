@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning dropshipping
 - 💞️ I’m looking to collaborate on store owners
 - 📫 How to reach me Elvacheersdrop@gmail.com
-- 😄 Pronouns: Cheersdrop is an all-in-one shipping platform, that helps you source and ship anything you need from China. 
+- 😄 Pronouns: Cheersdrop is an all-in-one shipping platform, that helps you source and ship anything you need from China. (https://cheersdrop.com/)
 - ⚡ Fun fact: With 5 years of experience, Cheersdrop is able to handle 5000+ orders per day and excels in supply chain management, providing excellent sourcing, warehousing solutions, procurement advantages, efficient fulfillment, strict quality inspection and private label services.
 No Monthly Fee, No Minimum Order.
 WhatsApp：+8618414307304
